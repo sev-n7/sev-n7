@@ -7,6 +7,11 @@
  *i love, love, LOVE. looking at other peoples rentrys and such! PLEASE, HOW ARE YALL SO AWESOME?? AND YOU DECORATE SO BEAUTIFULLYYYY AAAAAAAA*
 
 *AHEM . . . sorry hehe*
+
+*is obsessed with:*
+*dw ~ **dsaf** ~ phighting*
+
+*certified night owl!!!*
 <!---
 toxin-catz/toxin-catz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
