@@ -1,10 +1,10 @@
-<p align="center"
-
-![turn-off-the-car-alarm-tomska](https://github.com/user-attachments/assets/93a53dc0-1ef4-4592-a6a4-3917228958ee)
-
  <p align="center"
   
-![fb765e90](https://github.com/user-attachments/assets/6a97c882-2a6d-4b40-ab60-e9d138b20a7b)
+![download (10)](https://github.com/user-attachments/assets/f0ae21a2-e923-4267-ae52-a0839bd598d4)
+ 
+  <p align="center"
+ 
+![b42e60b6](https://github.com/user-attachments/assets/17f8dff7-fb6d-4292-866c-cbddb05fee28)
  
  <p align="center"
 
@@ -14,6 +14,11 @@
   
  *honestly just go to my strawpage, theres more info there lol. . .*
 
+ <p align="center"
+
+![ac0a5518](https://github.com/user-attachments/assets/65c104ba-6208-4622-bea7-8f68b8e1dce6)
+
+  
 <p align="center"
  
  *i love, love, LOVE. looking at other peoples rentrys and such! PLEASE, HOW ARE YALL SO AWESOME?? AND YOU DECORATE SO BEAUTIFULLYYYY AAAAAAAA*
@@ -26,34 +31,40 @@
  
 *certified night owl!!!*
 
-<p align="center"![d3eixi6-6bbabed5-bbae-4f30-a235-23ea0fb9dff3](https://github.com/user-attachments/assets/89709a14-264e-4158-b574-6fa1e1d2219f)
-
+<p align="center"!
 
  *im **always** ok with c + h !!*
  
 <p align="center"
 
-![matt-eddsworld](https://github.com/user-attachments/assets/4a36ca26-b510-495d-8770-6de00850ad14)
-
-![a137d50b](https://github.com/user-attachments/assets/c0a0e18d-edae-4a94-a0b8-60749622c589)
-![c9116889](https://github.com/user-attachments/assets/f098b713-8045-4c6c-bfc8-b21a0fba43dc)
-![17b4be77](https://github.com/user-attachments/assets/bb4f1534-0fca-49fe-8100-da68405d3e49)
-![d44b2e30](https://github.com/user-attachments/assets/4c749982-bbbb-4d16-84d0-74f3d984980b)
-![96ec72cf](https://github.com/user-attachments/assets/efcc9576-1040-4c0f-9b5a-d4972327e2cb)
-![880b545f](https://github.com/user-attachments/assets/9cb0ff2a-cedd-4608-a8ae-073a7c34d9a6)
-![1f3582d7](https://github.com/user-attachments/assets/dbfcf399-be62-4c2e-bb3d-66c6c893cd0f![a7ea4cb0](https://github.com/user-attachments/assets/f8479d47-9890-4cfb-b688-bc5275d60b09)
-)
-![4bcba21c](https://github.com/user-attachments/assets/54a4ecf4-cbd8-41e8-8a50-103b7283a33d)
-![60964897](https://github.com/user-attachments/assets/32f74581-b7bb-4257-973a-5b864296b777)
-![1d59eac7](https://github.com/user-attachments/assets/3fba47c6-72ae-436b-84da-3e9459c6c9b8)
-![cdc7f269](https://github.com/user-attachments/assets/a0365340-5aae-44f9-a384-ac1fd5b5d0db)
-![ba4ba47a](https://github.com/user-attachments/assets/d745acc4-2245-414d-b9d2-2758ff6da904)
-![6e27ec12](https://github.com/user-attachments/assets/addc34ec-0b1a-44c2-bc05-baa9a296e222)
-![transman_stamp_by_destinysgrace_da832zk-fullview](https://github.com/user-attachments/assets/4517ae07-1e73-41a0-b6b9-a95a05c6d805)
-![candy_stamp_by_cyberdaydream_dg4p9ba-fullview](https://github.com/user-attachments/assets/ca1436b8-d611-4836-8eee-84c13d8a2dce)
-![digwza3-682f0bf3-b72b-448b-b02a-f60a917fe1cd](https://github.com/user-attachments/assets/f1b3e74d-256b-4263-9526-f8d5c135883d)
-![daj310p-bd727d0f-3795-417b-8219-36098718607b](https://github.com/user-attachments/assets/545c3d67-e96e-4cca-8552-698dbbca6cef)
+![5ded882d](https://github.com/user-attachments/assets/e34f3175-8834-40a0-b5ca-845cdfe8c789)
 
 <p align="center"
+
+![car-garn47](https://github.com/user-attachments/assets/b8096948-51ec-4078-a180-7099affac114)
+
+
+ <p align="center"
+  
+![61da4bab](https://github.com/user-attachments/assets/94922f50-5b96-41db-89dc-95ca9ce7b35b)
+![f13ac01f](https://github.com/user-attachments/assets/78f9bb8a-70a3-489b-a006-07e0be3a45e3)
+![80340ca5](https://github.com/user-attachments/assets/88827bc6-2b0e-476a-96c3-36b5de477667)
+![ee38082e](https://github.com/user-attachments/assets/1a41dba8-13ed-464d-8e42-237a3ed11dd2)
+![21faa790](https://github.com/user-attachments/assets/6534e30f-1ca5-4625-aec8-c8d287ab0233)
+![a181ac5a](https://github.com/user-attachments/assets/efe41676-76cb-466b-a4ea-ed0b8deef077)
+![fa16253f](https://github.com/user-attachments/assets/ceac47ea-760a-4938-ac04-bb5612f2599f)
+![4260ac56](https://github.com/user-attachments/assets/6de23615-91e5-4d43-a2f7-d8753b728a7e)
+![56cd3eec](https://github.com/user-attachments/assets/24c325d4-2b87-4d1f-ae2c-7f3b86002042)
+![d5716752](https://github.com/user-attachments/assets/444740f3-8194-41c5-b36e-e5ea635aaa01)
+![46ba09c0](https://github.com/user-attachments/assets/1bfd810d-336c-45ef-adf7-6c6d9e79cbb4)
+![drqxlc-1ff43054-4edd-4026-8d0e-334fcc9abf53](https://github.com/user-attachments/assets/bb64baa0-2119-4ec8-9335-f0d297ec467b)
+![f4](https://github.com/user-attachments/assets/9b854a34-5a98-4c94-ab45-8052b551884c)
+![f23](https://github.com/user-attachments/assets/fcfa24b0-b128-4923-9b9f-6b46494d9df3)
+![9ed51d09](https://github.com/user-attachments/assets/a0ff9352-63e0-4e14-8466-a3795593607e)
+![Tumblr-l-160872597027900](https://github.com/user-attachments/assets/1bac5c4d-e7a7-4b5e-9eeb-317dbb35845f)
+![273f7a75](https://github.com/user-attachments/assets/5d81e68c-5fa3-4da4-8a83-906978b7d9c1)
+
+
+ <p align="center"
  
 [stamps and more!!!](https://gifcity.carrd.co/)
