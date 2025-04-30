@@ -64,5 +64,10 @@
 
 
  <p align="center"
+
+ ![](https://komarev.com/ghpvc/?username=toxin-catz&color=green)
+
+ <p align="center"
  
 [stamps and more!!!](https://gifcity.carrd.co/)
+
