@@ -1,27 +1,30 @@
  <p align="center"
   
-![download (10)](https://github.com/user-attachments/assets/f0ae21a2-e923-4267-ae52-a0839bd598d4)
+![58618539138ec41000d0ad81a0355e81](https://github.com/user-attachments/assets/094dd98e-9507-4d5a-8387-8638717db4cb)
  
   <p align="center"
  
-![b42e60b6](https://github.com/user-attachments/assets/17f8dff7-fb6d-4292-866c-cbddb05fee28)
- 
+![f9e87726](https://github.com/user-attachments/assets/0b9d1cb6-3eae-4571-abc2-429996ecb995)
+
  <p align="center"
 
- ***I’m toxin / mark!!***
+ ***toxin / seven / mark***
+
+  <p align="center"
+
+***he / any***
 
  <p align="center"
   
- *honestly just go to my strawpage, theres more info there lol. . .*
+ *dont be scared to int!!! i might be awkward n js generally quiet, im just extremely anxious around new people. i can also be quite loud and obnoxious lol.*
 
- <p align="center"
-
-![ac0a5518](https://github.com/user-attachments/assets/65c104ba-6208-4622-bea7-8f68b8e1dce6)
-
-  
-<p align="center"
+  <p align="center"
+   
+ *i HEAVILY kin 007n7, if you look on my strawpage yure sure to see what i mean aha... i love drawing and making fun of pre c00lkidd 7n7*
  
- *i love, love, LOVE. looking at other peoples rentrys and such! PLEASE, HOW ARE YALL SO AWESOME?? AND YOU DECORATE SO BEAUTIFULLYYYY AAAAAAAA*
+ <p align="center"
+ 
+ *i love, love, LOVE. looking at other peoples rentrys / strawpages and such! PLEASE, HOW ARE YALL SO AWESOME?? AND YOU DECORATE SO BEAUTIFULLYYYY AAAAAAAA*
 
 <p align="center"
  
@@ -37,12 +40,7 @@
  
 <p align="center"
 
-![5ded882d](https://github.com/user-attachments/assets/e34f3175-8834-40a0-b5ca-845cdfe8c789)
-
-<p align="center"
-
-![car-garn47](https://github.com/user-attachments/assets/b8096948-51ec-4078-a180-7099affac114)
-
+![c00lkidd-forsaken](https://github.com/user-attachments/assets/6a69844a-71a2-48b2-9d6a-8ccbede29069)
 
  <p align="center"
   
