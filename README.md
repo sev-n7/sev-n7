@@ -40,6 +40,10 @@
  
 <p align="center"
 
+*i do tend to hunt for strawpages to draw in,, look out heh*
+
+<p align="center"
+
 ![c00lkidd-forsaken](https://github.com/user-attachments/assets/6a69844a-71a2-48b2-9d6a-8ccbede29069)
 
  <p align="center"
