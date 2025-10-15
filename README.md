@@ -36,7 +36,7 @@
 
 <p align="center"!
 
- *im **always** ok with c + h !!*
+*c + h heavily encouraged,,*
  
 <p align="center"
 
