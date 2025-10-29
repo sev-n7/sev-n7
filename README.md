@@ -8,39 +8,46 @@
 
  <p align="center"
 
- ***toxin / seven / mark***
+ ***T0X1N / S3V3N / M4RK***
 
   <p align="center"
 
-***he / any***
+***H3 / TH37 / 1T***
 
  <p align="center"
   
- *dont be scared to int!!! i might be awkward n js generally quiet, im just extremely anxious around new people. i can also be quite loud and obnoxious lol.*
+ *g1v1ng up 4nd u51ng w4t5 4pp4r3ntl7 l33tsp34k l0l*
 
   <p align="center"
    
- *i HEAVILY kin 007n7, if you look on my strawpage yure sure to see what i mean aha... i love drawing and making fun of pre c00lkidd 7n7*
+ *1 h45 rll7 b4d 4nx13t7, srr7 1f 1m w31rd L0L.. 1 d0nt w4nt t0 t4lk 4l0t 0f th3 t1m3, but 1dm l15t3n1ng!!*
+
+  <p align="center"
+ 
+ *1 W1LL TR7 M7 B35T T0 R35P0ND 31TH3RW47!! >.<*
+
+  <p align="center"
+
+ *0N TH3 0TH3R H4ND 1F 1 G3T 3XC1T3D 1 W1LL N0T 5HUT UP.. PL5 1F 1 G3T 4 B1T MUCH T3LL M3 DX*
  
  <p align="center"
  
- *i love, love, LOVE. looking at other peoples rentrys / strawpages and such! PLEASE, HOW ARE YALL SO AWESOME?? AND YOU DECORATE SO BEAUTIFULLYYYY AAAAAAAA*
+ *H34V7 007N7 K1N 1F TH4T W45NT 0BV10U5 L0L,, 4N 1RL 3V3N /S1LL7 :3 (pr3 ck 7n7 15 l1t3r4ll7 m3* 
 
 <p align="center"
- 
-*AHEM . . . sorry hehe*
 
-<p align="center"
- 
-*certified night owl!!!*
+*1f u t3ll m3 1m n0t 7n7 1ll g3t v10l3nt /j (4L50 D0NT RP W1TH M3 UNL35 CL053.. 4TP CK DN1 /J)*
+<p align="center" 
+
+<ins> *UND3R 13 PL5 1NT W1TH C4UT10N!! 1M 4N 4DULT DX M4K3 FR13ND5 Y0UR 4G3!!! Y0U C4N ST1LL T4LK T0 M3 TH0!!* </ins>
 
 <p align="center"!
 
-*c + h heavily encouraged,,*
+*1 h34v1l7 3nc0ur4g3 c + h cu5 1m 4 n33d7 b45t4rd (N0L1 1NT /S1LL7)*
  
 <p align="center"
 
-*i do tend to hunt for strawpages to draw in,, look out heh*
+*1F U F1ND 1T H4RD T0 R34D TH15 DW 1 W0NT T7P3 L1K3 TH15 1N C0NV3R54T10N (TH0 1 T7P3 50 F45T 1M 1L3G1BL3 4N7W47)*
 
 <p align="center"
 
