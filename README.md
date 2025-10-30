@@ -32,7 +32,7 @@
  
  <p align="center"
  
- *H34V7 007N7 K1N 1F TH4T W45NT 0BV10U5 L0L,, :3 pl5 d0nt b3 w31rd 4bt m3 3sp wh3n 1m u51ng a 7n7 p0n7 / 4v4t4r*
+ *1 RLL7 L1K3 007N7 1F TH4T W45NT 0BV10U5 L0L,, :3 pl5 d0nt b3 w31rd 4bt m3 3sp wh3n 1m u51ng a 7n7 p0n7 / 4v4t4r*
 
 <p align="center"
 
