@@ -1,7 +1,7 @@
  <p align="center"
   
-![58618539138ec41000d0ad81a0355e81](https://github.com/user-attachments/assets/094dd98e-9507-4d5a-8387-8638717db4cb)
- 
+![007n7-7n7](https://github.com/user-attachments/assets/29f20b30-88ec-415e-9df2-df8a8b6ca76f)
+
   <p align="center"
  
 ![f9e87726](https://github.com/user-attachments/assets/0b9d1cb6-3eae-4571-abc2-429996ecb995)
@@ -32,50 +32,37 @@
  
  <p align="center"
  
- *H34V7 007N7 K1N 1F TH4T W45NT 0BV10U5 L0L,, 4N 1RL 3V3N /S1LL7 :3 (pr3 ck 7n7 15 l1t3r4ll7 m3* 
+ *H34V7 007N7 K1N 1F TH4T W45NT 0BV10U5 L0L,, :3 pl5 d0nt b3 w31rd 4bt m3 3sp wh3n 1m u51ng a 7n7 p0n7 / 4v4t4r*
 
 <p align="center"
 
-*1f u t3ll m3 1m n0t 7n7 1ll g3t v10l3nt /j (4L50 D0NT RP W1TH M3 UNL35 CL053.. 4TP CK DN1 /J)*
-<p align="center" 
-
-<ins> *UND3R 13 PL5 1NT W1TH C4UT10N!! 1M 4N 4DULT DX M4K3 FR13ND5 Y0UR 4G3!!! Y0U C4N ST1LL T4LK T0 M3 TH0!!* </ins>
-
-<p align="center"!
-
-*1 h34v1l7 3nc0ur4g3 c + h cu5 1m 4 n33d7 b45t4rd (N0L1 1NT /S1LL7)*
- 
-<p align="center"
-
-*1F U F1ND 1T H4RD T0 R34D TH15 DW 1 W0NT T7P3 L1K3 TH15 1N C0NV3R54T10N (TH0 1 T7P3 50 F45T 1M 1L3G1BL3 4N7W47)*
+*1m g0nn4 upd4t3 m7 5tr4w cu5 n0 w47 1n h3ll 4m 1 m4k1ng 4 b1g w4ll 0f t3xt h3r3 (1t w0nt h4v3 th3 t7p1ng qu1rk 50 ppl c4n 4ctu4ll7 r34d 1t l0l)*
 
 <p align="center"
 
-![c00lkidd-forsaken](https://github.com/user-attachments/assets/6a69844a-71a2-48b2-9d6a-8ccbede29069)
+![noli-forsaken-forsaken](https://github.com/user-attachments/assets/3ef4731f-a0a2-467d-8d6f-2965b9e04a15)
 
  <p align="center"
   
-![61da4bab](https://github.com/user-attachments/assets/94922f50-5b96-41db-89dc-95ca9ce7b35b)
-![80340ca5](https://github.com/user-attachments/assets/88827bc6-2b0e-476a-96c3-36b5de477667)
-![ee38082e](https://github.com/user-attachments/assets/1a41dba8-13ed-464d-8e42-237a3ed11dd2)
-![21faa790](https://github.com/user-attachments/assets/6534e30f-1ca5-4625-aec8-c8d287ab0233)
-![a181ac5a](https://github.com/user-attachments/assets/efe41676-76cb-466b-a4ea-ed0b8deef077)
-![fa16253f](https://github.com/user-attachments/assets/ceac47ea-760a-4938-ac04-bb5612f2599f)
-![4260ac56](https://github.com/user-attachments/assets/6de23615-91e5-4d43-a2f7-d8753b728a7e)
-![d5716752](https://github.com/user-attachments/assets/444740f3-8194-41c5-b36e-e5ea635aaa01)
-![46ba09c0](https://github.com/user-attachments/assets/1bfd810d-336c-45ef-adf7-6c6d9e79cbb4)
-![drqxlc-1ff43054-4edd-4026-8d0e-334fcc9abf53](https://github.com/user-attachments/assets/bb64baa0-2119-4ec8-9335-f0d297ec467b)
-![f4](https://github.com/user-attachments/assets/9b854a34-5a98-4c94-ab45-8052b551884c)
-![f23](https://github.com/user-attachments/assets/fcfa24b0-b128-4923-9b9f-6b46494d9df3)
-![9ed51d09](https://github.com/user-attachments/assets/a0ff9352-63e0-4e14-8466-a3795593607e)
-![Tumblr-l-160872597027900](https://github.com/user-attachments/assets/1bac5c4d-e7a7-4b5e-9eeb-317dbb35845f)
-![273f7a75](https://github.com/user-attachments/assets/5d81e68c-5fa3-4da4-8a83-906978b7d9c1)
-<img width="97" height="77" alt="35jsiy" src="https://github.com/user-attachments/assets/94d900fa-eb5d-4d99-9959-099162031c8f" />
-
+![7n7 and coolkidd](https://github.com/user-attachments/assets/f45dd806-2d5b-451c-9690-d5047803d3da)
+![ezgif-807abee425ce5c](https://github.com/user-attachments/assets/771ffb60-20d3-4209-825c-52f4d4e1c7cb)
+![8c76b652](https://github.com/user-attachments/assets/5a6506be-f290-4bdb-b25a-b003597398ca)
+![!dancing 007n7](https://github.com/user-attachments/assets/a5967526-ca98-4c19-8fc5-067737ba5110)
+<img width="99" height="56" alt="bcebe7ea" src="https://github.com/user-attachments/assets/006c1b0a-2981-4f6e-ac89-93899c0ec795" />
+<img width="99" height="56" alt="3e9a21b1" src="https://github.com/user-attachments/assets/01a8819c-85ff-4613-a794-df7249f6d132" />
+![deadpool](https://github.com/user-attachments/assets/7a5ece64-8c37-4ce3-a3fe-c80a40743824)
 
  <p align="center"
 
- ![](https://komarev.com/ghpvc/?username=toxin-catz&color=green)
+<img width="99" height="56" alt="tumblr_f90b391e2dded04160a71d5f0e15b439_c3a49f4b_250" src="https://github.com/user-attachments/assets/dc660072-62d4-4cd6-97fb-8aa2756b1ea1" />
+<img width="99" height="56" alt="tumblr_2a6cccb878234cf8b85b793eab27bd31_6fe85755_250" src="https://github.com/user-attachments/assets/a6e41e34-3391-4e8d-abd3-f3da8634dc06" />
+<img width="99" height="56" alt="tumblr_77e70a7edcc27e41ff449883f8d38d3e_82715281_250" src="https://github.com/user-attachments/assets/e44bb1aa-3357-49ae-a045-bba166e9b697" />
+<img width="99" height="56" alt="tumblr_744e83418380517005a620afe1f4476b_4b4fecb9_250" src="https://github.com/user-attachments/assets/8cef6a67-9191-4bd5-a812-8b3176c007d8" />
+<img width="99" height="56" alt="tumblr_f90b391e2dded04160a71d5f0e15b439_c3a49f4b_250" src="https://github.com/user-attachments/assets/e30dde2c-6632-4a82-a587-58307db5293b" />
+
+ <p align="center"
+
+ ![](https://komarev.com/ghpvc/?username=toxin-catz&color=red)
 
  <p align="center"
  
