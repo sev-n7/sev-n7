@@ -15,7 +15,11 @@
 ***H3 / TH37 / 1T***
 
   <p align="center"
-   
+
+  C + H always encouraged!
+
+   <p align="center"
+    
  *1 h45 rll7 b4d 4nx13t7, srr7 1f 1m w31rd L0L.. 1 d0nt w4nt t0 t4lk 4l0t 0f th3 t1m3, but 1dm l15t3n1ng!!*
 
   <p align="center"
