@@ -22,19 +22,7 @@
     
  *1 h45 rll7 b4d 4nx13t7, srr7 1f 1m w31rd L0L.. 1 d0nt w4nt t0 t4lk 4l0t 0f th3 t1m3, but 1dm l15t3n1ng!!*
 
-  <p align="center"
- 
- *1 W1LL TR7 M7 B35T T0 R35P0ND 31TH3RW47!! >.<*
-
-  <p align="center"
-
- *0N TH3 0TH3R H4ND 1F 1 G3T 3XC1T3D 1 W1LL N0T 5HUT UP.. PL5 1F 1 G3T 4 B1T MUCH T3LL M3 DX*
- 
  <p align="center"
- 
- *1 RLL7 L1K3 007N7 1F TH4T W45NT 0BV10U5 L0L,, :3 pl5 d0nt b3 w31rd 4bt m3 3sp wh3n 1m u51ng a 7n7 p0n7 / 4v4t4r (h4p3n5 4 L0T.)*
-
-<p align="center"
 
 *1 T3ND T0 R3M0V3 1NF0 N WH4T N0T,, TH15 15 M05TL7 JU5T M3 B31NG S3LFC0N510U5. (wut3v3r u r34d 4t th3 t1m3 15 m05tl1k3l7 5t1ll f4ct unl355 5t4t3d 0th3rw153)*
 
@@ -67,9 +55,5 @@
 
  <p align="center"
  
-[stamps and more!!!](https://gifcity.carrd.co/)
-
-<p align="center"
-
-and this is why c00lkidds dni -> <img width="493" height="286" alt="Screenshot 2025-05-19 075122" src="https://github.com/user-attachments/assets/19cd623e-ae51-4940-b045-d3c0590bcebc" />
+[stamps and more!!!](https://gifcity.carrd.co/) + [mm guns lol!!!](https://guns.lol/sev_n7)
 
