@@ -71,4 +71,5 @@
 
 <p align="center"
 
-[shedletsperm](https://files.catbox.moe/tda51y.png)
+and this is why c00lkidds dni -> <img width="493" height="286" alt="Screenshot 2025-05-19 075122" src="https://github.com/user-attachments/assets/19cd623e-ae51-4940-b045-d3c0590bcebc" />
+
