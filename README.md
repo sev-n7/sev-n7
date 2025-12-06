@@ -32,6 +32,10 @@
 ![noli-forsaken-forsaken](https://github.com/user-attachments/assets/3ef4731f-a0a2-467d-8d6f-2965b9e04a15)
 
  <p align="center"
+ 
+[stamps and more!!!](https://rentry.co/sevns_storage) + [mm guns lol!!!](https://guns.lol/sev_n7)
+
+ <p align="center"
   
 ![7n7 and coolkidd](https://github.com/user-attachments/assets/f45dd806-2d5b-451c-9690-d5047803d3da)
 ![ezgif-807abee425ce5c](https://github.com/user-attachments/assets/771ffb60-20d3-4209-825c-52f4d4e1c7cb)
@@ -40,6 +44,7 @@
 <img width="99" height="56" alt="bcebe7ea" src="https://github.com/user-attachments/assets/006c1b0a-2981-4f6e-ac89-93899c0ec795" />
 <img width="99" height="56" alt="3e9a21b1" src="https://github.com/user-attachments/assets/01a8819c-85ff-4613-a794-df7249f6d132" />
 ![deadpool](https://github.com/user-attachments/assets/7a5ece64-8c37-4ce3-a3fe-c80a40743824)
+
 
  <p align="center"
 
@@ -53,7 +58,5 @@
 
  ![](https://komarev.com/ghpvc/?username=toxin-catz&color=red)
 
- <p align="center"
- 
-[stamps and more!!!](https://rentry.co/sevns_storage) + [mm guns lol!!!](https://guns.lol/sev_n7)
+
 
