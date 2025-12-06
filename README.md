@@ -55,5 +55,5 @@
 
  <p align="center"
  
-[stamps and more!!!](https://gifcity.carrd.co/) + [mm guns lol!!!](https://guns.lol/sev_n7)
+[stamps and more!!!](https://rentry.co/sevns_storage) + [mm guns lol!!!](https://guns.lol/sev_n7)
 
