@@ -20,9 +20,8 @@
 
   <p align="center"
 
-![](https://files.catbox.moe/ffkjkm.png) ![](https://files.catbox.moe/43rcmk.png)
+![](https://files.catbox.moe/tu1cbp.png)
 
- 
   <p align="center"
 
   I USUALLY DONT FOLLOW BACK IF AT ALL,,, ITS LITERALLY JUST BECAUSE OF MY ANXIETY 🥹
