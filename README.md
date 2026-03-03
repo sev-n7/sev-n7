@@ -75,3 +75,7 @@
  <p align="center"
 
 (i will probably be updating sum of my things over timeee sryy if you like the old stuff siiighhhhh,,, ill be sure to keep it accessable thooo dww)
+
+<p align="center"
+
+[neocities!! (wip wip wip)](https://toxincatz.neocities.org/)
