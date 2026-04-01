@@ -74,7 +74,7 @@
  
  <p align="center"
 
-(i will probably be updating sum of my things over timeee sryy if you like the old stuff siiighhhhh,,, ill be sure to keep it accessable thooo dww)
+(comepletely remaking rentry + straw ^_^ will possibly redo this readme too!)
 
 <p align="center"
 
