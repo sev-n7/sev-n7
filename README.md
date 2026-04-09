@@ -74,7 +74,7 @@
  
  <p align="center"
 
-(comepletely remaking rentry + straw ^_^ will possibly redo this readme too!)
+(comepletely remaking ~~rentry + straw~~ ^_^ will possibly redo this readme too!)
 
 <p align="center"
 
