@@ -4,7 +4,7 @@
  
  <p align="center"
 
-![made by me bruh!](https://s6.ezgif.com/tmp/ezgif-6040a867ae3ea71a.gif)
+![uhoh something broke...](https://s6.ezgif.com/tmp/ezgif-6040a867ae3ea71a.gif)
   
   <p align="center"
 
