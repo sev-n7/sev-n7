@@ -18,11 +18,3 @@
    <p align="center"
 
  ![](https://komarev.com/ghpvc/?username=toxin-catz&color=red)
-
-<p align="center"
-
-IF YOUSEE ME AWAYU FROM FUF WITHOUT THIS GIT LINKED THATS NOT ME.
-
-<p align="center"
- 
-the strawpage is back brah! yippee!!
